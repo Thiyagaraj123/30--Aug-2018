@@ -11,4 +11,7 @@ kjk
   e
   rer
   vre
+  vk wvw 
+  w
+  vv
   
